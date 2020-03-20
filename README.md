@@ -1,2 +1,2 @@
-# -Dr.-Ignaz-Semmelweis
+Dr.Ignaz Semmelweis
 PROJECT: DR. SEMMELWEIS AND THE DISCOVERY OF HANDWASHING
